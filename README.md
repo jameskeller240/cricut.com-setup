@@ -1,0 +1,2 @@
+# cricut.com-setup
+ Follow www.cricutcomsetup.com/ is the online portal that allows you to set up your Cricut machine. A mostadvanced Cricut machine is best in cutting shapes, text, and photos. It doesn’t only make cuts oncard stock or vinyl but adhesive foil, faux leather, balsa wood, and more. https://websmcafee.com/activate/ , https://www.cricutcomsetup.com/ , https://sites.google.com/a/setups.great-site.net/ij-start-cannon/
